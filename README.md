@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @simonyoung12321
-- 👀 I’m interested in free game/music/movie
+- 👀 I’m interested in game/music/movie
 - 🌱 I’m currently learning anything I want
 - 💞️ I’m looking to collaborate on anything I want
 - 📫 WC:godamit
