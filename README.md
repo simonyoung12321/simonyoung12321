@@ -2,7 +2,6 @@
 - 👀 I’m interested in game/music/movie
 - 🌱 I’m currently learning anything I want
 - 💞️ I’m looking to collaborate on anything I want
-- 📫 WC:godamit
 
 <!---
 simonyoung12321/simonyoung12321 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
